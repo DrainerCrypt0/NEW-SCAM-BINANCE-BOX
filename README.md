@@ -3,11 +3,8 @@
 NEW SCAM AIRDROP BINANCE BOX 
 
 -Simple
-
 -effective
-
 -still little known...
-
 -fast and risk-free
 
 
