@@ -1,10 +1,15 @@
 # SCAM-BINANCE-PAY
 
 NEW SCAM AIRDROP BINANCE BOX 
+
 -Simple
+
 -effective
+
 -still little known...
-fast and risk-free
+
+-fast and risk-free
+
 
 📩 DM us here: https://t.me/CresusETH 💧
 
